@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Trello for macOS utility with professional Utility for Trello for macOS - quick search and widgets. Featuring quick search and widgets, it's the best choice for
 
 
 
